@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with adopt me Scripts new, the #1 Script. Includes auto-collect and private server access for unbeatable
 
 
 
